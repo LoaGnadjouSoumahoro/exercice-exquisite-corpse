@@ -22,3 +22,5 @@ Mais pour pouvoir réaliser sa recette, il doit d'abord du coup tuer les chats. 
 ![chats endormis](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcR6sInDeI_Di31dr4iI4jEz9NLZudoy5wiHeg&usqp=CAU)
 
 ![chat](https://media0.giphy.com/media/jUKBVRKJwoB9fC8g8p/giphy.gif?cid=ecf05e479z0tv2ghf4qxnz4witr5t22qisu5tzubcgn06t2u&ep=v1_gifs_search&rid=giphy.gif&ct=g)
+
+les souris ont fait des couvertures en fourure de chat, **Ratataouille** utilise les cotes des chats comme cuillière pour melanger ses préparations. Il utilise egalement leurs crânes comme cul de poule pour faire de la patisserie.
