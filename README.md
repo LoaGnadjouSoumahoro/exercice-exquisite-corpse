@@ -20,3 +20,5 @@ Cependant, *trois jours plus tard* le chat recommença à avoir faim
 Mais pour pouvoir réaliser sa recette, il doit d'abord du coup tuer les chats. **Ratatouille** attendit donc qu'ils s'endorment pour faciliter les choses. Les chats endormies, il leur donna encore un bon coup de poêle sur la tête histoire d'être sûr qu'ils ne se réveillent pas et commença la découpe de leur chair.
 
 ![chats endormis](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcR6sInDeI_Di31dr4iI4jEz9NLZudoy5wiHeg&usqp=CAU)
+
+![chat](https://media0.giphy.com/media/jUKBVRKJwoB9fC8g8p/giphy.gif?cid=ecf05e479z0tv2ghf4qxnz4witr5t22qisu5tzubcgn06t2u&ep=v1_gifs_search&rid=giphy.gif&ct=g)
