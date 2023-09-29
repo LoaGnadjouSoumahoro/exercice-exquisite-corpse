@@ -12,3 +12,7 @@ ce ne fut donc pas l'histoire des souris et du chat mais des souris et des **cha
 C'était sans compter sur la bravoure de Ratatouille, Cuisinier de renon et Samurai de Wano.  
 Il prépara une bolognaise d'enfer au chat qui était affamé.  
 Il fut repus et décida quand meme de danser avec les souris.
+
+Cependant, *trois jours plus tard* le chat recommença à avoir faim
+**Ratatouille** qui était désormais un chef cuisinier accompli ajouta une corde de plus à son arc:
+[Une recette spéciale](https://collections.forumgratuit.org/t4783-recette-du-chat-a-la-moutarde)
