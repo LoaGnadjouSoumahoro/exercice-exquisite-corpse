@@ -8,3 +8,7 @@ Après la mort du chat les souris ont décidé de célébrer leur joie. Musique,
  Malheureusement leur joie fut de courte durée car. Il appris que le chat avait des enfants.
 
 ce ne fut donc pas l'histoire des souris et du chat mais des souris et des **chats**. Une chase plus dur et plus intensive que jamais commenca pour nos *souris* qui n'ont pas pu profité de leur <sub>joie</sub> longtemps.
+
+C'était sans compter sur la bravoure de Ratatouille, Cuisinier de renon et Samurai de Wano.  
+Il prépara une bolognaise d'enfer au chat qui était affamé.  
+Il fut repus et décida quand meme de danser avec les souris.
